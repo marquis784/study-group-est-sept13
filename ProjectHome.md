@@ -1,0 +1,1 @@
+A place for students in EST (Eastern Standard Time) in Sept 13 IIN class to meet for dicussion regarding class modules, health histories and whatever else we fancy!
